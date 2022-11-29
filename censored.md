@@ -1,4 +1,4 @@
-[all](https://github.com/qq57240/Javdb-Top250/blob/main/all.md)&nbsp&nbsp&nbsp&nbsp[censored](https://github.com/qq57240/Javdb-Top250/blob/main/censored.md)&nbsp&nbsp&nbsp&nbsp[uncensored](https://github.com/qq57240/Javdb-Top250/blob/main/uncensored.md)&nbsp&nbsp&nbsp&nbsp[western](https://github.com/qq57240/Javdb-Top250/blob/main/western.md)&nbsp&nbsp&nbsp&nbsp[fc2](https://github.com/qq57240/Javdb-Top250/blob/main/fc2.md)<br><br>
+[all](https://github.com/qq57240/Javdb-Top250/blob/main/all.md)　　　　[censored](https://github.com/qq57240/Javdb-Top250/blob/main/censored.md)　　　　[uncensored](https://github.com/qq57240/Javdb-Top250/blob/main/uncensored.md)　　　　[western](https://github.com/qq57240/Javdb-Top250/blob/main/western.md)　　　　[fc2](https://github.com/qq57240/Javdb-Top250/blob/main/fc2.md)<br><br>
 Last Update: 2022-11-21<br><br>
 Ranking: 1<br>
 Tag: SSNI-497<br>
