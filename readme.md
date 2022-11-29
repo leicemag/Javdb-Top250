@@ -1,4 +1,5 @@
-Last Update:2022-11-21<br><br>
+<center>[all](all.md)    [censored](censored.md)    [uncensored](uncensored.md)    [western](western.md)    [fc2](fc2.md)</center><br><br>
+Last Update: 2022-11-21<br><br>
 Ranking: 1<br>
 Tag: LAFBD-41<br>
 Release Date: 2015-02-10<br>
