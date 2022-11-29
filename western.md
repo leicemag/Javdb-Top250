@@ -1,4 +1,4 @@
-<center>[all](https://github.com/qq57240/Javdb-Top250/blob/main/all.md)    [censored](https://github.com/qq57240/Javdb-Top250/blob/main/censored.md)    [uncensored](https://github.com/qq57240/Javdb-Top250/blob/main/uncensored.md)    [western](https://github.com/qq57240/Javdb-Top250/blob/main/western.md)    [fc2](https://github.com/qq57240/Javdb-Top250/blob/main/fc2.md)</center><br><br>
+[all](https://github.com/qq57240/Javdb-Top250/blob/main/all.md)    [censored](https://github.com/qq57240/Javdb-Top250/blob/main/censored.md)    [uncensored](https://github.com/qq57240/Javdb-Top250/blob/main/uncensored.md)    [western](https://github.com/qq57240/Javdb-Top250/blob/main/western.md)    [fc2](https://github.com/qq57240/Javdb-Top250/blob/main/fc2.md)<br><br>
 Last Update: 2022-11-21<br><br>
 Ranking: 1<br>
 Tag: blacked.20.01.10<br>
